@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @luascriptsROBLOX
-I'm lua coder for roblox exploit I'm a beta tester for krypton Btw krypton is the best executor coming soon 💓
-- try my website  - https://website.beacons.ai/luascripts/websites/live/8aa342f0-cbae-4d7d-9726-1afbc5c3f9c4/
-- My discord server - https://discord.com/invite/t7Azc46PWy
-- I own Byds And XERA ultron
-- that's all Bye
+- Hellowww Im an Lua , Python , Fullstack developer
+- Owner of PROJECTS ": SOS-STRIKE , XERA ULTRON , ROSCRIPTHUB
+
+My dream is to build bigger projects with adless services so everyone enjoys my projects
+🩷 You can support me for free
+-kokil <3
